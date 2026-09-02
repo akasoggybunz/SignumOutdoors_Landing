@@ -64,4 +64,4 @@ sync, or subscription billing - we will update this page before that feature shi
 
 ## Contact
 
-Questions about this policy: **[contact email placeholder - fill in before publishing]**
+Questions about this policy: akasoggybunz @ g m a i l . com
